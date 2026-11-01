@@ -1,0 +1,1 @@
+MNM Uygulamaları Gizlilik Politikaları
